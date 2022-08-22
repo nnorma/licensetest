@@ -1,3 +1,0 @@
-# No License
-
-Like none :) 
